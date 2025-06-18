@@ -10,3 +10,6 @@
 - 3 colheres (sopa) de chocolate em pó
 - 1 xícara (chá) de açúcar
 - 1 xícara (chá) de leite
+
+# decoração 
+- pimenta a vontade
